@@ -1,5 +1,3 @@
 12211175_Riyanto
 12211229_Eghi Jala Maha Raga
 12211195_Daniel
-12211197_Shobirin
-12211234_Adrianus Kevin
